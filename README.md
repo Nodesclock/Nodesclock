@@ -29,7 +29,7 @@ I like making random stuff, even if they don’t go anywhere or are just abandon
 
 ## About Me:
 
-I’m a 17 year old male developer located in the United States, half Ukrainian and half Mexican. 🇺🇦🇲🇽🇺🇸
+I’m a 18 year old male developer located in the United States, half Ukrainian and half Mexican. 🇺🇦🇲🇽🇺🇸
 
 I travel often and enjoy exploring different countries and languages.
 
